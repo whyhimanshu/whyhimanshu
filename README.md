@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on LinkedIn.
 - 📫 How to reach me : Email at vermahim402@gmail.com
 - 😄 Pronouns: "Him"
-- ⚡ Fun fact: Learning gives you earning, so never try to stop it.
+- ⚡ Fun fact: The ending is the beginning.
 
 <!---
 whyhimanshu/whyhimanshu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
